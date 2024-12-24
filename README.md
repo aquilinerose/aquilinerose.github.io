@@ -1,6 +1,5 @@
 # aquilinerose.github.io
 <br>
-HELLO EVERYONE!
 ---
 
 ### :fire: My Stats :
